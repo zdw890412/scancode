@@ -1,0 +1,1 @@
+scan code for android
